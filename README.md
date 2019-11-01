@@ -1,1 +1,2 @@
 # AboutMe
+My name is Mia Rosengard. I am a freshman in the Lehigh business school, aspiring to work in marketing. I am extremely passionate about non profit work. I have been working at the YMCA for the last 3 years as an after school educator and a camp counselor for preschoolers.
